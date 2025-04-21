@@ -13,3 +13,4 @@ Ludzie żyją za wypłaty żula statysty socjalnego Lestera z Bragi z Gotic3 za 
 To Lombardziści Bezosa kłucili się o te gadżety na wojnach na świecie z gier wojenych do lombardu. Ludzie na świecie żyją za socjalne mininalne żulowskie wynagrodzenie statysty za Lesterówkę i wypłatę Nik Laser. 
 Podsłuchiwałem CB radiem EEG diakonesę z Diakoni Alexe Cheng 1 miesiąc to poznałem ich myśli i DNA i rachunki ich rodzin Alexy Cheng i papy Bezosa. 
 Prawdę tą znam od urodzenia mówie po raz 1 te racje i prawdy życiowe to po latach wojen. 3 światowej na świecie nie będzie znów bezosy i sklepy. Diakonesa Alexa Cheng to smaczek w słodkim torcie z borówką amerykańską w galaretce smaczek w prawdach co robi góra. Dół to praca za 400 zł z ZUS.  
+Diakonesa to przychodziła w białym kocu Diakonesa w Polsce to Czartorycka co przychodziła w bordowym kocu. 
