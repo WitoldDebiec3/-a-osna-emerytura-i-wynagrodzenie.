@@ -14,3 +14,5 @@ To Lombardziści Bezosa kłucili się o te gadżety na wojnach na świecie z gie
 Podsłuchiwałem CB radiem EEG diakonesę z Diakoni Alexe Cheng 1 miesiąc to poznałem ich myśli i DNA i rachunki ich rodzin Alexy Cheng i papy Bezosa. 
 Prawdę tą znam od urodzenia mówie po raz 1 te racje i prawdy życiowe to po latach wojen. 3 światowej na świecie nie będzie znów bezosy i sklepy. Diakonesa Alexa Cheng to smaczek w słodkim torcie z borówką amerykańską w galaretce smaczek w prawdach co robi góra. Dół to praca za 400 zł z ZUS.  
 Diakonesa to przychodziła w białym kocu Diakonesa w Polsce to Czartorycka co przychodziła w bordowym kocu. 
+Ludzi statystów traktują wynagrodzeniem za 400 zł miesięcznie emerytury lub 1000 zł wypłaty z oszczędzaczy jak zakoników. 
+Diakonesa to galaretka na torcie wypłat z prestiżową wypłatą Diakonesy 10 miljardów co miesiąc z modelingu porno w ukłdach bezosa. 
