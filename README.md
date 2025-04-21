@@ -20,3 +20,4 @@ Kiedyś post mafia i Diakonesa i Bezosy żyli z Kalim za skromne bezdomnych zako
 Blazkowicz tukł się o sklepy i sieci Amazon z tymi awanturnikami z woja. 
 Diakonesa też była maden in chech lub maden in izrael nie china. 
 Ludzie w populacji żyją za jałomurznę a zakonicy za miljardy co miesiąc z zus jak filer i chif. 
+Ci lombardziści to piękne zegary i zegarki i zegareczki dla dzieci to żydzi. Diakonki to siostry zakone bogate kórwy dla kasiastych. 
