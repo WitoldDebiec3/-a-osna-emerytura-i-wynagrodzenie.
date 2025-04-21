@@ -6,3 +6,4 @@ Populacja na etacie robi za statyste. Usłyszycie tylko złote pseudo porady kup
 Ostanie epidemie na różne chorby zakaźne i raka genetyczne były to plany depopulacjie populacji na zlecenie watykanu przez Harrp i 112 i 117 chif. 
 To że ludzie jedzą robaki to Watykan. 
 Te wielkie naziwska wykrzyknięte przez media tych nie stego świata wielkich i sławnych ludzi kosmistów to Watykan karze krzyczeć bo jakiś dziad prorok nostradamus napisał kod bibli dla następnych pokoleń kolejny przekrent. Wielkie nazwiska prezesów i ich majątki to wymyśły Kristin Bell nierówność Bell. A ludzie na świecie robią za żula socjalnego statyste. 
+Nie kupno na własność a i szybka sprzedaż urzywanego auta a wynajem jest popularne i wysokie ceny to Bezosy to kórwiozum życia ludzi na socjalu żula scolanego statysty za banany chikita coś jak w firmie Nik Laser. 
