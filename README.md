@@ -28,3 +28,4 @@ Tyle o pięknym izraelu i pięknych zegarach.
 Jak ja się zastanawiałem nad pieniedzmi z kąd je brać. Bezos grał w słonice i rozkładał nogi i budował armie i parafie na świecie. Te brzydkie córy to bezosa są. Za młodu piękne za strasość babcie gęby z izraela dziadówek.  
 To lombardy zabierają durzą kasę i grają w majątki lotto i budują hale hoteli z mikro pokojami.  
 Bezosy. 
+Na Bezosów nikt nie ma piniedzy na te psy. Kuchania słodka u Bezosów to Gofer 25 zł, Lody 25 zł. 50 zł kasują na dzieńdobry bezosy. Ta drożyzna to Bezosy. Blazkowicz też walczył o tą drożyznę i nierówność bell lab w PKB. 
