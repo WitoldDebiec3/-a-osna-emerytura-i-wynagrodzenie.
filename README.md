@@ -23,3 +23,4 @@ Ludzie w populacji żyją za jałomurznę a zakonicy za miljardy co miesiąc z z
 Ci lombardziści to piękne zegary i zegarki i zegareczki dla dzieci to żydzi. Diakonki to siostry zakone bogate kórwy dla kasiastych. 
 Tak to wszystko Bezioś.
 Blazkowicz o zidu się wygadał tyle o o Zidu. Tak oni to zid. 
+Reszte kasy to NGO zabrało. 
