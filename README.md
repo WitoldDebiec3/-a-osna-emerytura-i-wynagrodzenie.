@@ -18,3 +18,4 @@ Ludzi statystów traktują wynagrodzeniem za 400 zł miesięcznie emerytury lub 
 Diakonesa to galaretka na torcie wypłat z prestiżową wypłatą Diakonesy 10 miljardów co miesiąc z modelingu porno w ukłdach bezosa. 
 Kiedyś post mafia i Diakonesa i Bezosy żyli z Kalim za skromne bezdomnych zakoników. 
 Blazkowicz tukł się o sklepy i sieci Amazon z tymi awanturnikami z woja. 
+Diakonesa też była maden in chech lub maden in izrael nie china. 
