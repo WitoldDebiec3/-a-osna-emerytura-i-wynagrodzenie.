@@ -4,3 +4,5 @@ Te pieniądze topi ochrona środowiska, służba zdrowia, Wojskowość, Policja,
 Pnesje niskie są za karę przez afery chronowizorem AI na zlecenie mafi i post mafi z Watykanu. 
 Populacja na etacie robi za statyste. Usłyszycie tylko złote pseudo porady kup oszczędzacz energi wody i gazu tylko tyle zakaz lotto i inwestycji w banku.  Niebo to kalifornia te zkazay i bezosy. Te gry i wojny i afery były o biznesy bezosów wszystkie wojska tego broniły na świecie. To Bezosy są złdzieje i mafia dla świata i karzą żyć w miniamaliźmie statsyty żula socjalnego. 
 Ostanie epidemie na różne chorby zakaźne i raka genetyczne były to plany depopulacjie populacji na zlecenie watykanu przez Harrp i 112 i 117 chif. 
+To że ludzie jedzą robaki to Watykan. 
+Te wielkie naziwska wykrzyknięte przez media tych nie stego świata wielkich i sławnych ludzi kosmistów to Watykan karze krzyczeć bo jakiś dziad prorok nostradamus napisał kod bibli dla następnych pokoleń kolejny przekrent. Wielkie nazwiska prezesów i ich majątki to wymyśły Kristin Bell nierówność Bell. A ludzie na świecie robią za żula socjalnego statyste. 
