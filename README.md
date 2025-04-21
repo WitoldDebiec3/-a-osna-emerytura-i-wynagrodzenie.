@@ -29,3 +29,4 @@ Jak ja się zastanawiałem nad pieniedzmi z kąd je brać. Bezos grał w słonic
 To lombardy zabierają durzą kasę i grają w majątki lotto i budują hale hoteli z mikro pokojami.  
 Bezosy. 
 Na Bezosów nikt nie ma piniedzy na te psy. Kuchania słodka u Bezosów to Gofer 25 zł, Lody 25 zł. 50 zł kasują na dzieńdobry bezosy. Ta drożyzna to Bezosy. Blazkowicz też walczył o tą drożyznę i nierówność bell lab w PKB. 
+Ostatnie ceny są jak w sklepach u Bezosów w stadionie narodowośći żydowskiej Izrael piękny izrael ABDOCHA. Kiedyś za loda dużego i dużego gofra płaciło się 5 zł a teraz 50 zł może niedługo 500 zł jak prostytuce za masturbacje 10000 zł tyle co nieroby w Policji mają np.: Blaskowicze.  To też bezosy. 
