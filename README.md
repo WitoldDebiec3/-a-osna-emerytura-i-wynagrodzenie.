@@ -16,3 +16,4 @@ Prawdę tą znam od urodzenia mówie po raz 1 te racje i prawdy życiowe to po l
 Diakonesa to przychodziła w białym kocu Diakonesa w Polsce to Czartorycka co przychodziła w bordowym kocu. 
 Ludzi statystów traktują wynagrodzeniem za 400 zł miesięcznie emerytury lub 1000 zł wypłaty z oszczędzaczy jak zakoników. 
 Diakonesa to galaretka na torcie wypłat z prestiżową wypłatą Diakonesy 10 miljardów co miesiąc z modelingu porno w ukłdach bezosa. 
+Kiedyś post mafia i Diakonesa i Bezosy żyli z Kalim za skromne bezdomnych zakoników. 
