@@ -26,3 +26,5 @@ Blazkowicz o zidu się wygadał tyle o o Zidu. Tak oni to zid.
 Reszte kasy to NGO zabrało. 
 Tyle o pięknym izraelu i pięknych zegarach. 
 Jak ja się zastanawiałem nad pieniedzmi z kąd je brać. Bezos grał w słonice i rozkładał nogi i budował armie i parafie na świecie. Te brzydkie córy to bezosa są. Za młodu piękne za strasość babcie gęby z izraela dziadówek.  
+To lombardy zabierają durzą kasę i grają w majątki lotto i budują hale hoteli z mikro pokojami.  
+Bezosy. 
