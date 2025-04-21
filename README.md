@@ -24,3 +24,4 @@ Ci lombardziści to piękne zegary i zegarki i zegareczki dla dzieci to żydzi. 
 Tak to wszystko Bezioś.
 Blazkowicz o zidu się wygadał tyle o o Zidu. Tak oni to zid. 
 Reszte kasy to NGO zabrało. 
+Tyle o pięknym izraelu i pięknych zegarach. 
