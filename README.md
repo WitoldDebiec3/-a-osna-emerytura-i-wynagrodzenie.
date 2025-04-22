@@ -38,3 +38,4 @@ To Bezosy chcą pogrzebów i zakaz wskrzeszania zmarłego są nichilistami.
 Bezosy i watykan i 112 to chorzy ludzie od pogrzebów i dawania po zmarłym pięknego zegara. To są chorzy ludzie od kar śmierci na harrp. Bezos podobno żyje 500 lat zażył serum super żołnierza. Bezosy akceptują śmierć to smalcownicy są.  
 Ja jako jedyny człowiek nie akceptuje śmierci i domu bożego zaświatów dla mnie to cyrk na kiju. 
 Bezosy i hierachowie kościelni chorują na wirus rzadkich kompleksów i chorów psychicznych że akceptują śmierć populacji i karę śmierci. Pod ścianę wojskowi to źli ludzie kapelani z piekła wsi rodem. Oni chorują na choroby psychiczne i kompleksy aby poczuć się lepiej że kogoś zabili i pochowali na cmentarzu. To pacjenci klinik psychiatrycznych z majątkiem i status qwo.  
+To są seryjni mordercy Harrp 112 i 117. 
