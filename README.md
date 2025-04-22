@@ -43,3 +43,5 @@ Może to Kali Linux Kali Amerykanin seryjny morderca znów na pokaza dla religi 
 Gazety to post mafia. 
 To fanatycy religijni mordercy i nic więcej. 
 Zamordowali i złożyli w ofierze prometeuszowie na jego ołtarz to zrobiła alkaida Bezosy wymordowali wszystkie w Kocu i Płaszczu i Futrze sztucznym harrp i karabinami AK47 i C4 112 i 117. 
+Te mordy rytualne to żydzi i bezosy i religijne.
+Żyć w ciele można wiecznie. Policja nic im nie zrobi bo watykan płaci aby były mordy rytualne dla idnian pacza jeffa bezosa. 
