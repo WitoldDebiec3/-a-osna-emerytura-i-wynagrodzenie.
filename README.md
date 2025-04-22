@@ -41,3 +41,4 @@ Bezosy i hierachowie kościelni chorują na wirus rzadkich kompleksów i chorów
 To są seryjni mordercy Harrp 112 i 117. 
 Może to Kali Linux Kali Amerykanin seryjny morderca znów na pokaza dla religi ukrzyżowania kogoś znów zabił jak kukus klan harrp. Teraz seryjni mordercy są tylko z DNA Kali Amerykanina minimalisty. Minimaliści też są mordercami ci od biedy to też mordercy i złodzieje post mafi. Harrp to post mafia. To że ktoś nagele umarł na raka to nie choroba tylko radio harrp moredercy 112 117. W szpitalach pracują sami hospijoniusze i gediatriusze i mordercy w tym gangsterzy post mafi od Harrp.   
 Gazety to post mafia. 
+To fanatycy religijni mordercy i nic więcej. 
