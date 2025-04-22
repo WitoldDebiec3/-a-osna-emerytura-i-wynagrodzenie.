@@ -54,3 +54,4 @@ Te co są dziewczyny to głupie dresiary Jurek Magdziński Deus Ex Kuzyn Magdzi�
 Każdy wojskowy to rumun i IQ 85 punktów jak u rumuna. Każde wojsko to wojsko rumuńskie. 
 Dresy się tłumaczą że mordują i zabijają kunie. 
 Te w kocu i płaszczu i futrze stucznym długim do kostki to były pani genetyk i biolog i inżynier genetyczny specjalistki od nanotechnologi i elektroniki. Pały je zabiły. 
+Te panie w kocu to nie były dresy ZIDYDAMI NIE BYŁY. Teraz są same zidy wojskowe dresy panie szeregowiec idiotki mam dres i WF uczę jak słwek zięba wojsko.  
