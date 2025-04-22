@@ -58,3 +58,4 @@ Te panie w kocu to nie były dresy ZIDYDAMI NIE BYŁY. Teraz są same zidy wojsk
 Te kobiety chodziły w tych ubraniach nawet w upały po 45 stopni celjsjusza. Teraz są same szmaty adidas i naiki dresy szergowiec dres sportowiec hip hop gangsta rap. 
 Wojskowe regulują wysokość wypłat.
 Wojskowe to są szmaty. 
+Podejrzewam że większość mężczyn będzie sama i zawsze będzie kawalerami przez pod ścianę i Alkaidę. 
