@@ -50,3 +50,4 @@ Ci mordercy to watykan, żydzi, i bezosy w tym dresy.
 Hitler ma 85 IQ. 
 Kali ma 67 IQ. 
 Te w kocu miały 320 IQ i więcej były akwarelstkami od sztuki malowania obrazów. Czasami były to pisarki książek. 
+Te co są dziewczyny to głupie dresiary Jurek Magdziński Deus Ex Kuzyn Magdzińsakiego z Tomaszowa Mazowieckiego.  
