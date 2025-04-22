@@ -52,3 +52,4 @@ Kali ma 67 IQ.
 Te w kocu miały 320 IQ i więcej były akwarelstkami od sztuki malowania obrazów. Czasami były to pisarki książek. 
 Te co są dziewczyny to głupie dresiary Jurek Magdziński Deus Ex Kuzyn Magdzińsakiego z Tomaszowa Mazowieckiego.  
 Każdy wojskowy to rumun i IQ 85 punktów jak u rumuna. Każde wojsko to wojsko rumuńskie. 
+Dresy się tłumaczą że mordują i zabijają kunie. 
