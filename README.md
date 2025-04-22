@@ -35,3 +35,4 @@ Wojny były o prabacie bezosów o te brzydkie stare babcie.
 Obecni właściele ziemi to zakonicy i bezosy  z izraela. To ich pomysły na wojny i drożyznę. Blazkowicz miał reklamować kiedyś reklamę zaprawy tynkarskiej w sieci cerffur. 
 To Watykan zabiera lotto z Bezosami i daje emeryturę 400 zł kiedyś dawali zegarki tak samo zabierają prcenty z kont bankowych.  
 To Bezosy chcą pogrzebów i zakaz wskrzeszania zmarłego są nichilistami. 
+Bezosy i watykan i 112 to chorzy ludzie od pogrzebów i dawania po zmarłym pięknego zegara. To są chorzy ludzie od kar śmierci na harrp. Bezos podobno żyje 500 lat zażył serum super żołnierza. Bezosy akceptują śmierć to smalcownicy są.  
