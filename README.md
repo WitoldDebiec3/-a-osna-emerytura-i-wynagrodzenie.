@@ -32,3 +32,4 @@ Na Bezosów nikt nie ma piniedzy na te psy. Kuchania słodka u Bezosów to Gofer
 Ostatnie ceny są jak w sklepach u Bezosów w stadionie narodowośći żydowskiej Izrael piękny izrael ABDOCHA. Kiedyś za loda dużego i dużego gofra płaciło się 5 zł a teraz 50 zł może niedługo 500 zł jak prostytuce za masturbacje 10000 zł tyle co nieroby w Policji mają np.: Blaskowicze.  To też bezosy. 
 Abdocha Diakonesa modelesa. 
 Wojny były o prabacie bezosów o te brzydkie stare babcie. 
+Obecni właściele ziemi to zakonicy i bezosy  z izraela. To ich pomysły na wojny i drożyznę. Blazkowicz miał reklamować kiedyś reklamę zaprawy tynkarskiej w sieci cerffur. 
