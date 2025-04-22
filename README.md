@@ -56,3 +56,5 @@ Dresy się tłumaczą że mordują i zabijają kunie.
 Te w kocu i płaszczu i futrze stucznym długim do kostki to były pani genetyk i biolog i inżynier genetyczny specjalistki od nanotechnologi i elektroniki. Pały je zabiły. 
 Te panie w kocu to nie były dresy ZIDYDAMI NIE BYŁY. Teraz są same zidy wojskowe dresy panie szeregowiec idiotki mam dres i WF uczę jak słwek zięba wojsko.  
 Te kobiety chodziły w tych ubraniach nawet w upały po 45 stopni celjsjusza. Teraz są same szmaty adidas i naiki dresy szergowiec dres sportowiec hip hop gangsta rap. 
+Wojskowe regulują wysokość wypłat.
+Wojskowe to są szmaty. 
