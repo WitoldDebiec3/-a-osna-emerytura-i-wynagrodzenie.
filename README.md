@@ -59,3 +59,4 @@ Te kobiety chodziły w tych ubraniach nawet w upały po 45 stopni celjsjusza. Te
 Wojskowe regulują wysokość wypłat.
 Wojskowe to są szmaty. 
 Podejrzewam że większość mężczyn będzie sama i zawsze będzie kawalerami przez pod ścianę i Alkaidę. 
+Co do wypłat to jak rząd zwiększy to Bezos zwiększy ceny za usługi i produkty. Zawsze zabiorą to co dali. 
