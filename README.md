@@ -47,3 +47,6 @@ Te mordy rytualne to żydzi i bezosy i religijne.
 Żyć w ciele można wiecznie. Policja nic im nie zrobi bo watykan płaci aby były mordy rytualne dla idnian pacza jeffa bezosa. 
 Kali chce dawać po śmierci w kocu i płaszczu i futrze dresiarzy w zegarku zegareczki. Z tego co wiem to oni mordują inteligencje. Dresy to IQ 85 maksymalnie i piją wino. Nie ruszają żuli i kloszardów. Ci morderdcy tych kobiet w kocu to dresy i sportowcy adidas w tym kibole. Kiedyś tych kobiet w futrze i kocu i płaszczu było od zasrania dużo. Harrp utrzymują pod ścinę kapelani wojskowi.  
 Ci mordercy to watykan, żydzi, i bezosy w tym dresy. 
+Hitler ma 85 IQ. 
+Kali ma 67 IQ. 
+Te w kocu miały 320 IQ i więcej były akwarelstkami od sztuki malowania obrazów. Czasami były to pisarki książek. 
