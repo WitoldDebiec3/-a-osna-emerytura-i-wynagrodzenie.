@@ -61,3 +61,4 @@ Wojskowe to są szmaty.
 Podejrzewam że większość mężczyn będzie sama i zawsze będzie kawalerami przez pod ścianę i Alkaidę. 
 Co do wypłat to jak rząd zwiększy to Bezos zwiększy ceny za usługi i produkty. Zawsze zabiorą to co dali. 
 Oni chcą niektórym dać żonę za dom i na bezdomność lub wynajem. Nik Laser dostanie w mordę sikierą jak przemuś za lewo. Żona na 30 lat kolejny przekrent. 
+Jak Glapiński znów obniży stopy procentowe dostanie z gołembiami i NGO w mordę za słowo ustąp ubogiemu na wózku inwalidzkim. 
