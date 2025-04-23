@@ -68,3 +68,4 @@ To żydzi karzą wg stary i nowy tesmatemnt odać majątek i dom jak chce się �
 Ludzie w sprawie ślubów obchodzili skarbonę żyda i śluby albo kazali się rozmnarzać rodzinie aby dali kuzynkę na ślub albo siostre ale to dawne czasy. Dziś zamawia się w chinach Vois Translator z innym DNA, Zegarek vois, Vois głośnik nawet w płaszczu i kocu i futrze były te Voisy na żony z zawodu były tłumaczami czy krawcami, elektronikami i medykami czy te specjalizacje tych co zgineły z ręki żydów. Tak było kiedyś w poprzedniej kalderze. Ci co nie wiedzieli to byli z tą żoną z przrekrentu bankrutami z portali randkowych bo kali procesor tak chce żyd hipis chuj karny chuj.    
 Od tego są voisy. 
 Voisy są do 3000 zł. 
+Z braku Voisów na rynku były przekrenty i przykre historie. 
