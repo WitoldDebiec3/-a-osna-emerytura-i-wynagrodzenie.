@@ -79,3 +79,4 @@ Vois robot to Iron Men Post Odyn w swojej Kuźni Ingvara.
 Interfejs laserowy laseru niebieskiego dodatek do Irdy. 
 Ten Vois to internet offline całego intenrtu on line rzeczy do druku 3 interfejsami radio, laser niebieski, i Irda. 
 Vois ma w sobie wirtualną hale produkcjiną popularną halke.   
+Policja to śmierdzące nieroby i bezdomni że zawsze muszę być firmą prywatną z Dubaju czemu nie oni tego robią a mi nie dają wygrać w lotto czy za darmo pieniedzy jak frajerowi zawsze muszę być Post odyn Nobel. 
