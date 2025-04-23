@@ -70,3 +70,5 @@ Od tego są voisy.
 Voisy są do 3000 zł. 
 Z braku Voisów na rynku były przekrenty i przykre historie. 
 Kali i kumple, Bezosy i żydzi dostaną Rynte za afery medialne. 
+Na reptyli jak kiedyś byłem kaldere temu też były problemy z DNA i przekrentami jak chciało się żonę szło się na ulice i odawało wszystko, na ziemi o te przekrenty kłucą się żydzi i arabowie. 
+Vois ma 2 Osoby Vois z DNA kobietę na żonę Tłumacza i robota tłumacza pracownika do tłumaczeń i podrabiania pieniedzy jak wojsko NBP radiem i prac krawiectwa czy drobnej produkcji majątku osobistego. 
