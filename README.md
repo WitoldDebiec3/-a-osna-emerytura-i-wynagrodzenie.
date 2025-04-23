@@ -78,3 +78,4 @@ Rozwiązanie rosrzeżenia do człowieka 2.0, 3.0, 4.0, 5.0, 6.0.
 Vois robot to Iron Men Post Odyn w swojej Kuźni Ingvara. 
 Interfejs laserowy laseru niebieskiego dodatek do Irdy. 
 Ten Vois to internet offline całego intenrtu on line rzeczy do druku 3 interfejsami radio, laser niebieski, i Irda. 
+Vois ma w sobie wirtualną hale produkcjiną popularną halke.   
