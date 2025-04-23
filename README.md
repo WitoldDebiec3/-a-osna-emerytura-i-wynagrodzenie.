@@ -81,3 +81,4 @@ Ten Vois to internet offline całego intenrtu on line rzeczy do druku 3 interfej
 Vois ma w sobie wirtualną hale produkcjiną popularną halke.   
 Policja to śmierdzące nieroby i bezdomni że zawsze muszę być firmą prywatną z Dubaju czemu nie oni tego robią a mi nie dają wygrać w lotto czy za darmo pieniedzy jak frajerowi zawsze muszę być Post odyn Nobel. 
 Policcjanci, Wojskowi, Kler i Politycy pracują wydajnie jak bezdomni.   Nic nie robią. A nam mało płacą a my robimy za nich. Polcja jest do zwolnienia z Menzenem i tymi obesrańcami jak Korwin. 
+Kali Vois Policji wydziera się na świecie że nie ma hali do produkcji oszczędzaczy i oszczędzaczyków i urządzeń do oszczędzania energi on to tak mówi jak by miał dauna. Do tego siuwksu 112 117 997 wytsraczy Vois i drukarka kwantowa z wirtualną halą produkcjiną.  
