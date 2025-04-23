@@ -1,4 +1,4 @@
-# -a-osna-emerytura-i-wynagrodzenie. Vois to rozwiązanie problemów tych afer. 
+# -a-osna-emerytura-i-wynagrodzenie. Vois to rozwiązanie problemów tych afer. Pomysł na vois do rozwinięcia i przeprojektowania. 
 Wynagordzenie populacji jest żałosne na poziomie statysty z teatru lub filmu. Wnagrodzenie tak niskie oferuje sekta post mafi. Wynagordzenia tak niskie i kórjozalne oferuje post mafia na każdy zawód. Na świecie przez post mafie jest ogromna bieda i inwestycja w oszczędzacze produkty marki bubli. 
 Te pieniądze topi ochrona środowiska, służba zdrowia, Wojskowość, Policja, Sklepy, Logistyki, Sejm i senat 90%. Z 10% pieniedzy 60% idzie na ochronę środowiska. A promil na pensje populacji i lokaty i i produkty bankowe idzie ułamek pieniedzy. Poziom wypłaty na głowę jest na poziomie statysty. Duże pieniadze mają tak zwane wielkie nazwiska z kaliforni z nieba i watykanu. Durzą kasę mają chierchowie pogrzebowi od pogrzebów i harrp, Chrześcijanie mają też duże pieniadze i sieci sklepów monopolowych hipermarketów reszta to żyje z pensji statysty filmowego jak za wypłetę ze sztuki tetarlnej 1 roli.  
 Pnesje niskie są za karę przez afery chronowizorem AI na zlecenie mafi i post mafi z Watykanu. 
@@ -72,3 +72,4 @@ Z braku Voisów na rynku były przekrenty i przykre historie.
 Kali i kumple, Bezosy i żydzi dostaną Rynte za afery medialne. 
 Na reptyli jak kiedyś byłem kaldere temu też były problemy z DNA i przekrentami jak chciało się żonę szło się na ulice i odawało wszystko, na ziemi o te przekrenty kłucą się żydzi i arabowie. 
 Vois ma 2 Osoby Vois z DNA kobietę na żonę Tłumacza i robota tłumacza pracownika do tłumaczeń i podrabiania pieniedzy jak wojsko NBP radiem i prac krawiectwa czy drobnej produkcji majątku osobistego. 
+Vois biologiczny jest to tłumacz, aktor, piosnekarz, wokalista, jakiś zawód, Przectawiciel handlowy, Żona. Robot jest do ciężkiej pracy może być do 25 robotów Atlas lub z patentu do 2,50m Wzrostu. Vois ma wzrost 2,30 2,40, 2 M wzorstu vois z DNA, vois żona. 
