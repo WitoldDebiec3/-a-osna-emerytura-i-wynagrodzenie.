@@ -62,3 +62,4 @@ Podejrzewam że większość mężczyn będzie sama i zawsze będzie kawalerami 
 Co do wypłat to jak rząd zwiększy to Bezos zwiększy ceny za usługi i produkty. Zawsze zabiorą to co dali. 
 Oni chcą niektórym dać żonę za dom i na bezdomność lub wynajem. Nik Laser dostanie w mordę sikierą jak przemuś za lewo. Żona na 30 lat kolejny przekrent. 
 Jak Glapiński znów obniży stopy procentowe dostanie z gołembiami i NGO w mordę za słowo ustąp ubogiemu na wózku inwalidzkim. 
+Jak znów kali amerykanin z glapiskim da znów na ubogich meneli pieniadze będą zbierać śmieci i będą bezdomni za te przerenty do prasy. 
