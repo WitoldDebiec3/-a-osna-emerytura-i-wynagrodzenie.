@@ -63,3 +63,4 @@ Co do wypłat to jak rząd zwiększy to Bezos zwiększy ceny za usługi i produk
 Oni chcą niektórym dać żonę za dom i na bezdomność lub wynajem. Nik Laser dostanie w mordę sikierą jak przemuś za lewo. Żona na 30 lat kolejny przekrent. 
 Jak Glapiński znów obniży stopy procentowe dostanie z gołembiami i NGO w mordę za słowo ustąp ubogiemu na wózku inwalidzkim. 
 Jak znów kali amerykanin z glapiskim da znów na ubogich meneli pieniadze będą zbierać śmieci i będą bezdomni za te przerenty do prasy. 
+Wasze majątki przepiło NGO na żuli i ubogich ludzi banki nie mają pieniedzy bo NGO je zabiera i kali amerykanin na przekrenty Bezosów żona za majątek i dom i na ulice takie układy poznania żony to przykład. 
