@@ -69,3 +69,4 @@ Ludzie w sprawie ślubów obchodzili skarbonę żyda i śluby albo kazali się r
 Od tego są voisy. 
 Voisy są do 3000 zł. 
 Z braku Voisów na rynku były przekrenty i przykre historie. 
+Kali i kumple, Bezosy i żydzi dostaną Rynte za afery medialne. 
