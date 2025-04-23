@@ -76,3 +76,4 @@ Vois biologiczny jest to tłumacz, aktor, piosnekarz, wokalista, jakiś zawód, 
 Robot jest do prowadzenia biznesu i produkcji drobnej w Vois jako integralna część Voisa. Vois z DNA jest do wyjęcia do naszego świata na żonę. Vois sprzedawany w kartoniku lub opakowaniu z plastiku czy z czystego złota lub platyny. 
 Rozwiązanie rosrzeżenia do człowieka 2.0, 3.0, 4.0, 5.0, 6.0. 
 Vois robot to Iron Men Post Odyn w swojej Kuźni Ingvara. 
+Interfejs laserowy laseru niebieskiego dodatek do Irdy. 
