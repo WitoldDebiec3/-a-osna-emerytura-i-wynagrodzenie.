@@ -60,3 +60,4 @@ Wojskowe regulują wysokość wypłat.
 Wojskowe to są szmaty. 
 Podejrzewam że większość mężczyn będzie sama i zawsze będzie kawalerami przez pod ścianę i Alkaidę. 
 Co do wypłat to jak rząd zwiększy to Bezos zwiększy ceny za usługi i produkty. Zawsze zabiorą to co dali. 
+Oni chcą niektórym dać żonę za dom i na bezdomność lub wynajem. Nik Laser dostanie w mordę sikierą jak przemuś za lewo. Żona na 30 lat kolejny przekrent. 
