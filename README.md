@@ -75,3 +75,4 @@ Vois ma 2 Osoby Vois z DNA kobietę na żonę Tłumacza i robota tłumacza praco
 Vois biologiczny jest to tłumacz, aktor, piosnekarz, wokalista, jakiś zawód, Przectawiciel handlowy i szef firmy domowej, krawcowa, genetyk, biolog, nanotechnolog inżynier genetyczny, elektronik i mechatronik i automatyk, Żona. Robot jest do ciężkiej pracy może być do 25 robotów Atlas lub z patentu do 2,50m Wzrostu. Vois ma wzrost 2,30 2,40, 2 M wzorstu vois z DNA, vois żona. 
 Robot jest do prowadzenia biznesu i produkcji drobnej w Vois jako integralna część Voisa. Vois z DNA jest do wyjęcia do naszego świata na żonę. Vois sprzedawany w kartoniku lub opakowaniu z plastiku czy z czystego złota lub platyny. 
 Rozwiązanie rosrzeżenia do człowieka 2.0, 3.0, 4.0, 5.0, 6.0. 
+Vois robot to Iron Men Post Odyn w swojej Kuźni Ingvara. 
