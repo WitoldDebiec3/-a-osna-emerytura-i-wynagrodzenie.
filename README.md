@@ -87,3 +87,4 @@ O te śmieci z marketów i sklepów kłuciły się duże miasta tylko. A o Voisy
 Harrp i kryzysy finasowe i te grosze z giełdy z dewidendy to blokady finasowe od księdza i policji i wojska czy 112 i 117 legi sparty i NGO. 
 Te grosze z lotto i giełdy czy pracy to PGE. 
 Te grosze i ten agent to Też Martyna Wojciechowska, Ator i Agent Tomek. I glapiński. 
+Żeby zarobić na wypłatę i emeryturę potrzebny jest procesor aby coś z niego dostać sprzedać i zgarać w PayDey. 
