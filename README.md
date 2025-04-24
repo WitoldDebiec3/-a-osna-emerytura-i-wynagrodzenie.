@@ -88,3 +88,4 @@ Harrp i kryzysy finasowe i te grosze z giełdy z dewidendy to blokady finasowe o
 Te grosze z lotto i giełdy czy pracy to PGE. 
 Te grosze i ten agent to Też Martyna Wojciechowska, Ator i Agent Tomek. I glapiński. 
 Żeby zarobić na wypłatę i emeryturę potrzebny jest procesor aby coś z niego dostać sprzedać i zgarać w PayDey. 
+Nagrody Nobla za chemioterapię i oszczędzacze i zegareczki i te przekrenty 112 i 117 legie sparty to czarny i czarni kler. Harrp zabieranie zarobków chemio terapia brak lotto wysokich wypłat praca na wysokiej rak przerkenty to przekrenty na Nobla.  
