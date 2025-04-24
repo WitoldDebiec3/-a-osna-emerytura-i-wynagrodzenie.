@@ -84,3 +84,4 @@ Policcjanci, Wojskowi, Kler i Politycy pracują wydajnie jak bezdomni.   Nic nie
 Kali Vois Policji wydziera się na świecie że nie ma hali do produkcji oszczędzaczy i oszczędzaczyków i urządzeń do oszczędzania energi on to tak mówi jak by miał dauna. Do tego siuwksu 112 117 997 wytsraczy Vois i drukarka kwantowa z wirtualną halą produkcjiną.  
 O ten siuwaks co kłuci się ABW i Policja i kler i wojskowe i kali procesor to LGBT siuwaks szajs za 5 zł od Jubilera z pamiątkami z ul.: koscielnej i rogu żydowskiej. 
 O te śmieci z marketów i sklepów kłuciły się duże miasta tylko. A o Voisy wsie bo szukali żony. 
+Harrp i kryzysy finasowe i te grosze z giełdy z dewidendy to blokady finasowe od księdza i policji i wojska czy 112 i 117 legi sparty i NGO. 
