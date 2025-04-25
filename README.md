@@ -105,3 +105,4 @@ Tym Voisem można wyprodukować zapper z mocami na radio nawet takie same jak si
 Tego cwaniactwa aliemnty zdrady i rostanie kobiet naczyła niemiecka TV Jurka Magdziniskiego i Jerego Springera i sądy Wesołowskiej. Dziś nie ma kobiety uczciwej wsszystkie są inteligentne jak Back Track i Kali Linux lub Windows Kortana.  
 Wszystkie te kobiety mówią aliemnty bo nie ma oszczędzaczy i kwiatów. One są zarażone Kali Linuxe że te bzdury gadają i nie są łatwe Wesołowska i ABW wymyśliło tego wirusa. W głowie ich jest wirus software na radio się dostał harrp. 
 Kali Harrp system wirus dzwoni tym kobietom w głowach i karze kupić kondesator oszczędzacz do wody gazu i prąmdu. Kali to zid żyd. Taki przekrent harrp na radio. 
+Kali Ameryaknin to robi. 
