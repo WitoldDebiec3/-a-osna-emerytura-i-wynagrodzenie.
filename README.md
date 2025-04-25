@@ -102,3 +102,4 @@ ABW, CBA, CBŚ zabiera bogoą boskie moce, a ludzią kasę to jest ta post mafia
 ABW, CBA i CBŚ  to dzieci kwiaty mówią aha jak ich się nakryło na tych kradzieżach pieniedzy i mocy bogów na laser i radio z DNA. To kwiaty kradną. 
 Te moce można tylko odzyskać zapperem je zaprojektować procesorem zappera. 
 Tym Voisem można wyprodukować zapper z mocami na radio nawet takie same jak się straciło przez tych kiboli z 112 117 997. 
+Tego cwaniactwa aliemnty zdrady i rostanie kobiet naczyła niemiecka TV Jurka Magdziniskiego i Jerego Springera i sądy Wesołowskiej. Dziś nie ma kobiety uczciwej wsszystkie są inteligentne jak Back Track i Kali Linux lub Windows Kortana.  
