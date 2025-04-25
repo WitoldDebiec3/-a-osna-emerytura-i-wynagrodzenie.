@@ -101,3 +101,4 @@ ABW CBA i CBŚ dokarmaia smoka Akatosza tymi mordami rytualnymi. To ras Hish ich
 ABW, CBA, CBŚ zabiera bogoą boskie moce, a ludzią kasę to jest ta post mafia pod władaniem kaliego hakera. 
 ABW, CBA i CBŚ  to dzieci kwiaty mówią aha jak ich się nakryło na tych kradzieżach pieniedzy i mocy bogów na laser i radio z DNA. To kwiaty kradną. 
 Te moce można tylko odzyskać zapperem je zaprojektować procesorem zappera. 
+Tym Voisem można wyprodukować zapper z mocami na radio nawet takie same jak się straciło przez tych kiboli z 112 117 997. 
