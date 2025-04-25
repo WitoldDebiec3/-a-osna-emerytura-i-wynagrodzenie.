@@ -99,3 +99,4 @@ Przez ABW, CBA i CBŚ już mase osób poszło na talerz do AKATAOSZA abw to wyna
 Voisem można ożywić zmarłego. 
 ABW CBA i CBŚ dokarmaia smoka Akatosza tymi mordami rytualnymi. To ras Hish ich zabija. ABW podobno śpiewa pieśni ody jak bogu do rodzica. 
 ABW, CBA, CBŚ zabiera bogoą boskie moce, a ludzią kasę to jest ta post mafia pod władaniem kaliego hakera. 
+ABW, CBA i CBŚ  to dzieci kwiaty mówią aha jak ich się nakryło na tych kradzieżach pieniedzy i mocy bogów na laser i radio z DNA. To kwiaty kradną. 
