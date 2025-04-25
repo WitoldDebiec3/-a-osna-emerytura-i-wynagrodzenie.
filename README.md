@@ -103,3 +103,4 @@ ABW, CBA i CBŚ  to dzieci kwiaty mówią aha jak ich się nakryło na tych krad
 Te moce można tylko odzyskać zapperem je zaprojektować procesorem zappera. 
 Tym Voisem można wyprodukować zapper z mocami na radio nawet takie same jak się straciło przez tych kiboli z 112 117 997. 
 Tego cwaniactwa aliemnty zdrady i rostanie kobiet naczyła niemiecka TV Jurka Magdziniskiego i Jerego Springera i sądy Wesołowskiej. Dziś nie ma kobiety uczciwej wsszystkie są inteligentne jak Back Track i Kali Linux lub Windows Kortana.  
+Wszystkie te kobiety mówią aliemnty bo nie ma oszczędzaczy i kwiatów. One są zarażone Kali Linuxe że te bzdury gadają i nie są łatwe Wesołowska i ABW wymyśliło tego wirusa. W głowie ich jest wirus software na radio się dostał harrp. 
