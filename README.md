@@ -96,3 +96,4 @@ ABW, CBA i CBŚ skrobie z kasy na zleceie czarnego klechy religijnych takich bog
 ABW, CBA i CBŚ to łupaszki stonki. 
 ABW CBA i CBŚ za zabrane pieniądze na zlecenie czarnego księdza daje szmatę kunia i oszczędzacze wody gazu i prąmdu na zlecenie kaliego mówią na to bajery. Oni dfraudują pieniądze. 
 Przez ABW, CBA i CBŚ już mase osób poszło na talerz do AKATAOSZA abw to wynazcy smoków hish.  Te ich porwania czy aresztowania to zmyły aby uprawiać ludożerstwo i mordy rytualne. 
+Voisem można ożywić zmarłego. 
