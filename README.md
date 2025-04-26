@@ -108,3 +108,4 @@ Kali Harrp system wirus dzwoni tym kobietom w głowach i karze kupić kondesator
 Kali Ameryaknin to robi. 
 Oszczędzacze też pujdą do kosza bo PGE ma psitrony do monitoringu sieci. Miłość o tej porze idzie na ości, Mówią że ryby zgineły tajne tajniaki.  Te przekrenty i przykre historie są po 2 stronach nawet w niebie w Kaliforni Kaliego i Bezosów. Hish za to odpowiadają i shoci i Inowłódź inowiercy bez mięsa nie żyją. To Promeetusz niszczy miłość.   
 Jak karzą grać nie o pieniądze tylko o dom, mieszkanie, auto, żonę, alimenty i miłość zazwyczaj żona idzie na ości Prometeusz karze te ryby rzeźnikiem bo nie kasa tylko rynek bezosa ryby.  
+Zlecie płate Morderstwo Kaliego, Oliwi kliego i jego rodziny i innych ważnych żydów a wszystko wróci do normy. Znikną przekrenty. 
