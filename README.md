@@ -106,3 +106,4 @@ Tego cwaniactwa aliemnty zdrady i rostanie kobiet naczyła niemiecka TV Jurka Ma
 Wszystkie te kobiety mówią aliemnty bo nie ma oszczędzaczy i kwiatów. One są zarażone Kali Linuxe że te bzdury gadają i nie są łatwe Wesołowska i ABW wymyśliło tego wirusa. W głowie ich jest wirus software na radio się dostał harrp. 
 Kali Harrp system wirus dzwoni tym kobietom w głowach i karze kupić kondesator oszczędzacz do wody gazu i prąmdu. Kali to zid żyd. Taki przekrent harrp na radio. 
 Kali Ameryaknin to robi. 
+Oszczędzacze też pujdą do kosza bo PGE ma psitrony do monitoringu sieci. Miłość o tej porze idzie na ości, Mówią że ryby zgineły tajne tajniaki.  Te przekrenty i przykre historie są po 2 stronach nawet w niebie w Kaliforni Kaliego i Bezosów. Hish za to odpowiadają i shoci i Inowłódź inowiercy bez mięsa nie żyją. To Promeetusz niszczy miłość.   
