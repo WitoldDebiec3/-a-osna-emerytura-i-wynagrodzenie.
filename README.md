@@ -118,3 +118,4 @@ To są żydzi. Na biedę Vois a prawda na ich obalenie.
 Są ze sklepu hakują kali linuxe i whonixem i Talisem. Kradną z premi i lotto na te sklepy. Ci złodzieje są ze sklepu. 
 Kradną z wypłat premi, lotto podatku 1.5%, lokat, kont oszczędnościowych i funduszy indestycyjnych. Oni są cwani dają wiertarkę lub spawarkę i karzą iść do pracy. To Bezosy od zegarków dla ubogich. 
 Steruje nimi Elon Mask i Jeff Bezos ich jest 1 miljard. 
+Oni są stać i dają biedzie zegareczki. 
