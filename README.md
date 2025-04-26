@@ -114,3 +114,4 @@ Tych z NGO też wyjazd do eutanazji z kalim. Vois może być ale mogą ci hakerz
 To kali nie chce dać nikomu pieniedzy z lotto i wypłaty i dać wyjechać do innego kraju. On to ta bezpieka urzędu bezpiecznistwa cywilnego na zlecenie PGE. 
 Mnie za te słowa cały Feacbook olał i nasza klasa zachowują się jak wirus post mafi.  
 Ci co zabierają lotto na NGO na chore dziecko otwierają sklepy duże jak Bezosy i psują marzenia innym i zabierają wypłaty z pracy na etat na te sklepy. Bezosy i kali to duże rodziny z dużych miast. To ta Post mafia co ma lukusoswe mieszakania i domy za nasze wypłaty i premie i lotto żyją jak królowie czy cary. 
+To są żydzi. Na biedę Vois a prawda na ich obalenie. 
