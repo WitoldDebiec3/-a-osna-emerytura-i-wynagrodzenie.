@@ -111,3 +111,4 @@ Jak karzą grać nie o pieniądze tylko o dom, mieszkanie, auto, żonę, aliment
 Zlecie płate Morderstwo Kaliego, Oliwi kliego i jego rodziny i innych ważnych żydów a wszystko wróci do normy. Znikną przekrenty. 
 Macie na te 3 afery 2 rozwiązania. Albo zribić tego Voisa i ożywić zmarłych i olać kliego albo zabić tych post złodzieji i spuścić im krew z żył i tych hakerów też zabić razem z tymi żydami i kalim za fery lotto żony lotto i dom i auto i alimenty nie kasa. Albo Vois albo zabić kaliego i jego bandę zgłosić to na Policje. Vois do podrobień. 
 Tych z NGO też wyjazd do eutanazji z kalim. Vois może być ale mogą ci hakerzy lotto go hakować.
+To kali nie chce dać nikomu pieniedzy z lotto i wypłaty i dać wyjechać do innego kraju. On to ta bezpieka urzędu bezpiecznistwa cywilnego na zlecenie PGE. 
