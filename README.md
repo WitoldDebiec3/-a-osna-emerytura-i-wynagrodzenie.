@@ -121,3 +121,4 @@ Steruje nimi Elon Mask i Jeff Bezos ich jest 1 miljard.
 Oni są stać i dają biedzie zegareczki. 
 Ofiary losu wygrywają zegarki z żonami, frajerzy z lotto. Naiwni grają w lotto i nie umieją licytować kasy na wypłatę i nie szukają dalej pracy. To niewolnicy. 
 Vois jest na biedę do produkcji i handlu fabryka Vois lub jak ktoś nie ma żony. 
+Vois może na radio procesorem składać rzeczy i składować. A nawet procesor może ożywić zmarłego i go wydrukować radiem. 
