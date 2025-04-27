@@ -133,3 +133,4 @@ Rumuński też się o to kłuci radio i te oszczędzacze.
 O oszczędzacze kłucą się żydzi z NASA do lotów kosmicznych dalekich i bezosy.  
 Ci ludzie u Wesołowskiej pokucili się jak terminatory o oszczędzacze o 1000 zł na 2 miesiące to nie są oszczędności a talon na balon. 
 O ten talon na balon kłucą się żydzi, arabowie i ciapate troche turcy i niemcy.  
+Te termiantory co zabiją za ten talon na balon ten oszczędzacz to rybusie. To jest tylko 1000 zł na 2 miesiące i 2500 zł z fotowoltaiki. czyli 3500 zł na 2 miesiące czykli jak podnieca się Roksana Zięba dla pana boga nic. Nie jest to powód do wojny i mordów rytualnych tylko gówniarskie zagrywki z Vancuver i Denver mordercy o oszczędzacze i 3500 zł na 2 miesiące. 
