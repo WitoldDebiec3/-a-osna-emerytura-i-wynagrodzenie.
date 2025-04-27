@@ -123,3 +123,4 @@ Ofiary losu wygrywają zegarki z żonami, frajerzy z lotto. Naiwni grają w lott
 Vois jest na biedę do produkcji i handlu fabryka Vois lub jak ktoś nie ma żony. 
 Vois może na radio procesorem składać rzeczy i składować. A nawet procesor może ożywić zmarłego i go wydrukować radiem. 
 Urzędy to post mafia oni nie zwiększą kasy. Tu potrzebny jest Vois. 
+Żydów, totemy indianie, i jechowe, Bezosów też za te przekrenty i ABW CBA i CBŚ za raj wyślę do raju jako Post Odyn. Sami tam będą mieszkać. A Ludzi ożywimy i sprwadzimy na ziemię i skolonizujemy kosmos. 
