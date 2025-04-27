@@ -119,3 +119,4 @@ Są ze sklepu hakują kali linuxe i whonixem i Talisem. Kradną z premi i lotto 
 Kradną z wypłat premi, lotto podatku 1.5%, lokat, kont oszczędnościowych i funduszy indestycyjnych. Oni są cwani dają wiertarkę lub spawarkę i karzą iść do pracy. To Bezosy od zegarków dla ubogich. 
 Steruje nimi Elon Mask i Jeff Bezos ich jest 1 miljard. 
 Oni są stać i dają biedzie zegareczki. 
+Ofiary losu wygrywają zegarki z żonami, frajerzy z lotto. Naiwni grają w lotto i nie umieją licytować kasy na wypłatę i nie szukają dalej pracy. To niewolnicy. 
