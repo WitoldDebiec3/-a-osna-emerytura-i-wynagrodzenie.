@@ -132,3 +132,4 @@ Te afery żydów i bezosów nazywają się mordy rytualne harrp i oszczędzacze.
 Rumuński też się o to kłuci radio i te oszczędzacze. 
 O oszczędzacze kłucą się żydzi z NASA do lotów kosmicznych dalekich i bezosy.  
 Ci ludzie u Wesołowskiej pokucili się jak terminatory o oszczędzacze o 1000 zł na 2 miesiące to nie są oszczędności a talon na balon. 
+O ten talon na balon kłucą się żydzi, arabowie i ciapate troche turcy i niemcy.  
