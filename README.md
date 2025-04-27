@@ -130,3 +130,4 @@ Kali Amerykański z linux wam zrobił pogrzeby za oszczędzacze on to ten niepe�
 Ci mordercy i zleceniodawcy mordów rytualnych to żydzi i niepełnosprawni umysłowo ludzie i ręciści. 
 Te afery żydów i bezosów nazywają się mordy rytualne harrp i oszczędzacze. Żydom znów poszło o oszczędzacz. To afery niepełnosprawnych osób zabiły harrp tych zmarłych nagle. 
 Rumuński też się o to kłuci radio i te oszczędzacze. 
+O oszczędzacze kłucą się żydzi z NASA do lotów kosmicznych dalekich i bezosy.  
