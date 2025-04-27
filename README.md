@@ -129,3 +129,4 @@ Te pogrzeby i wypadki na ulicy poszły o PGE Wtyczki oszczędzaczy że każdy ma
 Kali Amerykański z linux wam zrobił pogrzeby za oszczędzacze on to ten niepełnosprawny od żydów i pogrzebów za oszczędzacze was kara śmiercią i chorobami Harrp możecie go zabić kłucą się oszczędzacze wody prcoesory. 
 Ci mordercy i zleceniodawcy mordów rytualnych to żydzi i niepełnosprawni umysłowo ludzie i ręciści. 
 Te afery żydów i bezosów nazywają się mordy rytualne harrp i oszczędzacze. Żydom znów poszło o oszczędzacz. To afery niepełnosprawnych osób zabiły harrp tych zmarłych nagle. 
+Rumuński też się o to kłuci radio i te oszczędzacze. 
